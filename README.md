@@ -1,2 +1,1 @@
-# discord-spam
-Spam message discord
+https://discord.io/mrcafe for help
