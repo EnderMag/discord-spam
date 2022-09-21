@@ -1,1 +1,1 @@
-https://discord.io/mrcafe for help
+https://discord.io/slowing for help
