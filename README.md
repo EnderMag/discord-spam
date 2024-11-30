@@ -1,1 +1,1 @@
-https://discord.io/slowing for help
+https://dsc.gg/solythra for help
